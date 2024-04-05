@@ -1,4 +1,5 @@
-hi, I am looking for investors for our new generation social media project, send an e-mail to ozyasarserdarberke@gmail.com for details.
+hi, I am looking for investors for our new generation social media project,
+send an e-mail to ozyasarserdarberke@gmail.com for details.
 Feely - https://feely.world
 
 <a href="https://chromedino.com">
